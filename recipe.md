@@ -1,0 +1,1 @@
+1. Preheat oven as directed on the box. 2. Bake the pizza as directed on the box. 3. Eat the pizza, because who doesn't like pizza? I know, my recipe is amazing. Totally creative. Please don't tell me I failed the project; I can code, but I can't cook. :)
